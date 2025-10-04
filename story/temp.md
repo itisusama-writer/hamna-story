@@ -87,3 +87,92 @@ The room tightened in on her: the lemon scent, the small chipped plates, the han
 She thought of the police papers, the stamped case number, the courtesies of men who meant well but were limited by their desks. She thought of her reputation, porous and subject to rumor. She thought of A.S, calm and distant, with a map of how to make her world smaller.
 
 She cried until sound turned to a hush, and when the sobs slowed she sat very still and listened. The clock on the wall kept time like a metronome for the frightened. Somewhere, a phone buzzed again, and Hamna understood that the night was not merely around her; it had already climbed inside the rooms that sheltered her life.
+
+---
+
+She nodded. “Yes... all of them.”
+
+He leaned forward. “Can I see?”
+
+Humna unlocked her phone with shaking hands. The message list was an archive of her nightmares — each one signed the same way:
+*Love, A.S.*
+
+Tariq scrolled silently, his jaw tightening. “This man’s careful. He uses auto-deleting texts. He knows surveillance patterns. Whoever he is, he’s smart.”
+
+Before Humna could answer, the screen lit up again.
+A new message.
+Short. Cold.
+*So he came... Give him the phone.*
+
+Humna froze. Her breath caught. She had never seen a message from him without the signature. No “Love, A.S.” this time — just an order.
+
+Her pulse hammered in her ears.
+Without thinking, she handed the phone to the officer.
+
+Tariq frowned. “What is it?”
+“Just... read,” she whispered.
+
+He glanced at the screen — and his face changed. The corners of his mouth went rigid. “What the hell—”
+
+Another message blinked in before he could finish.
+*Hello, Officer Tariq Shah. So you want to find me... right?*
+
+Tariq’s blood ran cold. His name. His *name.*
+He hadn’t told it to anyone here — not even the warden. He looked around the room instinctively, like the stalker might be standing right behind them.
+“How the hell does he know my name?” he muttered.
+
+Humna’s eyes widened. “He... he shouldn’t. I didn’t tell him anything—”
+
+Tariq’s fingers flew over the keyboard.
+**Who the hell are you? And how do you know my name?**
+
+The typing dots appeared immediately.
+Then came the reply.
+*I am **Adrian Saireen.***
+*I know everything.*
+*And I can see everything.*
+
+The name lingered on the screen like a curse.
+Humna’s breath hitched. Adrian. Adrian Saireen.
+The name she had feared had none — now it did. And somehow, that made it worse.
+
+Tariq’s voice came low and steady. “Is this the first time he’s used his name?”
+
+“Yes,” she whispered, backing away from the table. “He’s never signed like that before. It’s always A.S. — just A.S.”
+
+The phone buzzed again.
+*Careful, officer. The girl doesn’t like being watched... yet she tells you everything I want you to hear.*
+Then another:
+*Step closer to her. Let’s see what you do when you realize I’m watching both of you.*
+
+Tariq dropped the phone like it had burned him. “This isn’t just harassment anymore,” he said through clenched teeth. “This man is inside your life, Miss Malik. Inside your—”
+
+The words broke off as the hostel lights flickered.
+Once.
+Twice.
+
+Humna’s heartbeat synced with the hum of electricity. She looked toward the darkened hallway — and swore she saw movement.
+
+“Tariq...?” she whispered.
+
+He turned, scanning the shadows. “Stay behind me.”
+
+The lights steadied again.
+Nothing.
+Just silence.
+
+But when they looked back at the phone, another message was already waiting.
+*Don’t look for me, Officer. You’re already too close.*
+
+Then the screen went black.
+
+---
+
+Humna stood trembling, tears threatening again — but this time from something colder than fear.
+Realization.
+
+She had tried to escape him through confession. Through courage. Through truth.
+But he was always three steps ahead.
+
+And now, she had spoken his name.
+A name she was never meant to know.
